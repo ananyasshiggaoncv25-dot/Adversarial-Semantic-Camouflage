@@ -272,6 +272,10 @@ MIT License - See LICENSE file for details
 **ANANYA S SHIGGAON**  
 RVCE, Bangalore  
 [GitHub Profile](https://github.com/ananyasshiggaoncv25-dot)
+**T ARTHIYA**  
+RVCE, Bangalore  
+[GitHub Profile](https://github.com/ananyasshiggaoncv25-dot)
+
 
 ---
 
